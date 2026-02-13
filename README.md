@@ -1,4 +1,4 @@
-# 👋 Hi, I'm <your name>
+# 👋 Hi, I'm Mansi
 
 ## Product Owner | Immense Group | AI - enthusiast 
 
