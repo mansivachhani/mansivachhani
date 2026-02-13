@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Mansi
 
-## Product Owner | Immense Group | AI - enthusiast 
+## Product Owner | Immense Group | AI - enthusiast | Ex Software QA Engineer
 
 Product leader with 8+ years of experience delivering complex digital ecosystems across iGaming, sportsbook, CMS, player engagement, and analytics.
 
