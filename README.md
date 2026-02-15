@@ -2,11 +2,11 @@
 
 ## Product Owner | Immense Group | AI - enthusiast | Ex Software QA Engineer
 
-Product leader with 8+ years of experience delivering complex digital ecosystems across iGaming, sportsbook, CMS, player engagement, and analytics.
+I am a Product owner with 8+ years of experience delivering complex digital ecosystems across iGaming, Music, sportsbook, CMS, player engagement, and analytics.
 
 My background across engineering, QA, and product enables me to translate commercial ambition into technical execution while keeping systems scalable and sustainable.
 
-I build products together with my team that are **measurable, resilient, and ready to grow.**
+I build products together with my cross functional team that are **measurable, resilient, and ready to grow.**
 
 ---
 
